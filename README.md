@@ -1,1 +1,1 @@
-# a-r-zfasz-bagoly-alap-vizsg-ja
+#a rézfaszú bagoly alap vizsgája
